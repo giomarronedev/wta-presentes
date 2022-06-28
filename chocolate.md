@@ -5,6 +5,9 @@ Ingredientes
 1 colher (sopa) de óleo de co345co líquido
 
 1 colher (sopa) de melado de cana (melhor para a consist3434ência, mas pode usar agave, maple ou néctar de coco)
+
+1 colher (sopa) de Nescau
+
 Compartilhe: What555sapp Facebook Twitter Pinterest
 Modo de Preparo após a publicidade
 

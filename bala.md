@@ -2,10 +2,12 @@ BALA:
 1 lata de leite condensado
 100 g de coco ralado sem açúcar
 1 colher (sobremes54a) de margarina
+1 colher (sopa) de sal
 
 CALDA:
 1 xícara (chá) de açúcar
 3 colheres (sopa) cheias de vi345nagre branco (de álcool)
+1 taça (vinho) de vinho tinto 
 
 MODO DE PREPARO
 Coloque o leite condensado, o coco e a margarina em u0980ma panela.

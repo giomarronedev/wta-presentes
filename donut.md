@@ -8,6 +8,7 @@ leite (cerca de 200 ml)
 Doce de leite para rechear
 Cobertura (sugestão):
 180 g de chocolate meio amargo derretido em banho-m45aria
+100 g de granulado colorido
 
 2° OPÇÃO DE MASSA
 6 g de fermento biológico seco
@@ -20,6 +21,7 @@ Cobertura (sugestão):
 3 g de sal
 60 ml de le34543ite
 50 g de margarina
+100 g de granulado colorido
 
 MODO DE PREPARO
 1° OPÇÃO DE MASSA
