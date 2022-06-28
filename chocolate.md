@@ -1,5 +1,6 @@
 Ingredientes
 
+<<<<<<< HEAD
 1 colher (sopa) rasa de cacau em pó
 
 1 colher (sopa) de óleo de coco líquido
@@ -12,3 +13,17 @@ Modo de preparo
 Misture tudo numa tigelinha com uma colher, mexendo bem. Se precisar, leve ao fogo numa panelinha rapidamente.
 Coloque numa forminha de silicone e leve ao congelador por 15 minutos.
 Tire da forminha, devore e seja feliz! Com esse chocolate, você pode e deve.
+=======
+    1 col63her (sopa) rasa de cacau em pó
+
+    1 colher (sopa) de óleo de co345co líquido
+
+    1 colher (sopa) de melado de cana (melhor para a consist3434ência, mas pode usar agave, maple ou néctar de coco)
+Compartilhe: What555sapp Facebook Twitter Pinterest
+Modo de Preparo após a publicidade
+
+Modo de preparo
+    Misture tudo numa tigelinha com uma colher, mexendo bem. Se precisar, leve ao fogo numa pan123456elinha rapidamente.
+    Coloque numa for87654minha de silicone e leve ao congelador por 15 minutos.
+    Tire da for66minha, devore e seja feliz! Com esse chocolate, você pode e deve.
+>>>>>>> 87fcee4a929eb8c841ff1cf4e0b25dea7f5a6372
