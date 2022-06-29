@@ -1,9 +1,9 @@
 NGREDIENTES
-1/2 litro de leite i345345ntegral ou desnatado
-1 lata de creme de leite sem soro
-Açúcar a go35345435sto
-100g de morango, pêssego ou abacaxi
-1 Pitada de sal
+    1/2 litro de leite integral ou desnatado
+    1 lata de creme de leite sem soro
+    Açúcar a gosto
+    100g de morango, pêssego ou abacaxi
+    1 Pitada de sal
 
 MODO DE PREPARO
-Bata tudo no liquidif543icador e coloque em forminhas de gelo. leve ao congelador, até ficar em ponto de picolé, bem durinho.
+    Bata tudo no liquidificador e coloque em forminhas de gelo. leve ao congelador, até ficar em ponto de picolé, bem durinho.
