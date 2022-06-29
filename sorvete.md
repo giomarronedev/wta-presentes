@@ -2,6 +2,7 @@ INGREDIENTES
     1 lata de leite condensado
     1 lata de creme de leite com o soro
     1 pacote de gelatina (de sua preferência )
+    2 colheres de nata
 
 MODO DE PREPARO
     Faça a gelatina seguindo as instruções da embalagem.

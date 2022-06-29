@@ -1,5 +1,4 @@
 1° OPÇÃO DE MASSA
-
     2 ovos
     leite (cerca de 200 ml)
     1 colher de sopa de margarina
@@ -9,6 +8,7 @@
     Doce de leite para rechear
     Cobertura (sugestão):
     180 g de chocolate meio amargo derretido em banho-maria
+    100 g de granulado colorido
 
 2° OPÇÃO DE MASSA
     6 g de fermento biológico seco
@@ -21,6 +21,7 @@
     3 g de sal
     60 ml de leite
     50 g de margarina
+    100 g de granulado colorido
 
 MODO DE PREPARO
     1° OPÇÃO DE MASSA

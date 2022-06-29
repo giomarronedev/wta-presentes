@@ -6,7 +6,7 @@ Picolé:
     3/4 de xícara de leite em pó
     Calda:
     500 g de chocolate
-
+    200 g de nutella 
 
 MODO DE PREPARO
     Picolé:

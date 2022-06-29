@@ -5,6 +5,8 @@ Ingredientes
 
     1 colher (sopa) de melado de cana (melhor para a consistência, mas pode usar agave, maple ou néctar de coco)
     
+    1 colher (sopa) de Nescau
+    
 Compartilhe: Whatsapp Facebook Twitter Pinterest
 Modo de Preparo após a publicidade
 

@@ -6,6 +6,7 @@ INGREDIENTES
     1 e 1/2 xícaras de água
     2 caixinhas de morango picados
     1 xícara de açúcar
+    200 g de chocolate derretido em banho maria
 
 MODO DE PREPARO
     Ferva 1 xícara de água. Dissolva as gelatinas na água fervida e acrescente 1/2 xícara de água gelada. Reserve.

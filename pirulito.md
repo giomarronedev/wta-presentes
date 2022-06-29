@@ -1,13 +1,13 @@
 INGREDIENTES
-
     200 g de chocolate branco
     200 g de chcolate ao leite
     confeitos a gosto
     100 g de chocolate branco
+    20 g de margarina
 
 MODO DE PREPARO
     Derreta o chocolate branco e o ao leite.
-    Em forminhas de chocolate ou pirulito, coloque palitos de sorvete e depois uma pequ354ena porção de chocolate ao leite.
+    Em forminhas de chocolate ou pirulito, coloque palitos de sorvete e depois uma pequena porção de chocolate ao leite.
     Depois coloque pequenas porções de chocolate branco.
     Leve à geladeira para endurecer.
     Quando estiver duro, desenforme e coloquem em uma forma forrada com papel manteiga.
